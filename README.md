@@ -74,3 +74,78 @@ President of the United States.
 ---
 
 > 📅 *Sources: NPR, Democracy Now! | Compiled: June 20, 2026*
+
+
+# 🗞️ Daily News Digest — Day 2 (June 21, 2026)
+
+---
+
+## 🌍 World & Geopolitics
+
+### 1. Italy-US Diplomatic Row Erupts
+A serious rift has opened between Italy and the US after President Trump 
+claimed PM Giorgia Meloni "begged" him for a photo at the G7 summit in 
+Evian-les-Bains, France. Meloni called the claim "totally fabricated" 
+and said "neither I nor Italy beg." Italy's Foreign Minister Antonio 
+Tajani cancelled a planned weekend visit to Washington in protest, 
+calling Trump's remarks "serious and offensive" to all of Italy. 
+Tensions had already been simmering over Italy's opposition to the 
+US war in Iran and strong support for Ukraine.
+
+### 2. US-Iran Talks Remain Stalled
+The planned US-Iran negotiations in Switzerland have been cancelled, 
+keeping the fragile situation in limbo despite an earlier preliminary 
+agreement reached in Versailles.
+
+### 3. Juneteenth Observed Across the US
+The US marked Juneteenth, the holiday commemorating the end of slavery. 
+Rallies and remembrance events were held nationwide, including 
+demonstrations connected to broader civil rights discussions.
+
+---
+
+## 🇺🇸 US Politics
+
+### 4. ICE Facial Recognition Expansion
+The Department of Homeland Security is moving forward with plans to 
+give local police departments access to ICE's facial recognition 
+technology — a move drawing criticism from civil liberties groups.
+
+---
+
+## 💻 Tech & AI
+
+### 5. AI Compute Boom Reshapes Big Tech
+Major AI infrastructure spending continues to dominate tech headlines. 
+Companies are increasingly investing in compute capacity, with AI cloud 
+deals reportedly worth billions per month between major players — 
+underscoring how central AI infrastructure has become to corporate 
+strategy.
+
+### 6. Enterprise AI Shifts From Hype to Execution
+At Info-Tech LIVE 2026 in Las Vegas, thousands of CIOs and IT leaders 
+gathered to discuss moving "agentic AI" from experimentation into 
+measurable business value — signaling a maturing, more disciplined 
+phase for enterprise AI adoption.
+
+---
+
+## ⚽ Sports
+
+### 7. FIFA World Cup 2026 Continues
+The historic 48-team World Cup continues across the US, Canada, and 
+Mexico. Hydration breaks remain mandatory across matches due to 
+extreme heat conditions.
+
+---
+
+## 🏛️ Other
+
+### 8. Student Loan Auto-Pay Incentive
+The Trump administration's new policy offering a 1% interest rate 
+discount for student loan borrowers using auto-pay takes effect 
+July 1, as federal student debt nears $2 trillion nationally.
+
+---
+
+> 📅 *Sources: NPR, PBS, CBS News, NBC News, TechCrunch | Compiled: June 21, 2026*
