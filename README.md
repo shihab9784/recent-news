@@ -149,3 +149,15 @@ July 1, as federal student debt nears $2 trillion nationally.
 ---
 
 > 📅 *Sources: NPR, PBS, CBS News, NBC News, TechCrunch | Compiled: June 21, 2026*
+
+
+# 🗞️ Daily News Digest — Day 3 (June 22, 2026)
+
+---
+
+## 🌍 World & Geopolitics
+
+### 1. US-Iran Talks Resume in Switzerland — With Tension
+VP JD Vance traveled to Switzerland Sunday for fresh talks with Iranian
+officials. Progress was reported, with mediators Qatar and Pakistan calling
+discussions "positive and constructive."
