@@ -161,3 +161,86 @@ July 1, as federal student debt nears $2 trillion nationally.
 VP JD Vance traveled to Switzerland Sunday for fresh talks with Iranian
 officials. Progress was reported, with mediators Qatar and Pakistan calling
 discussions "positive and constructive."
+
+
+# 🗞️ Daily News Digest — Day 4 (June 23, 2026)
+
+---
+
+## 🇬🇧 UK Politics — BIG STORY
+
+### 1. UK Prime Minister Keir Starmer Resigns
+In a historic moment, UK Prime Minister Keir Starmer announced his
+resignation on June 22 outside 10 Downing Street. He said he was no
+longer the right person to lead Labour into the next general election.
+Starmer will remain as PM until a successor is chosen. He informed
+King Charles by phone before making the announcement. His authority
+had collapsed after Labour lost over 1,100 council seats to Nigel
+Farage's Reform UK in May's local elections. Starmer was Britain's
+seventh prime minister in a decade. Nominations for his replacement
+open July 9.
+
+### 2. Andy Burnham Frontrunner to Become Next UK PM
+Greater Manchester Mayor Andy Burnham, 56, has confirmed he will run
+for Labour leadership after winning a by-election in Makerfield — his
+entry ticket into Parliament. Health Secretary Wes Streeting backed
+Burnham rather than running himself. Burnham is now widely expected
+to become Britain's next prime minister before Parliament returns in
+September.
+
+---
+
+## 🌍 World & Geopolitics
+
+### 3. US Eases Iran Oil Sanctions After Nuclear Talks
+In a major diplomatic shift, the US Treasury issued a general license
+on June 22 authorizing the production, delivery, and sale of Iranian
+crude oil and petroleum products through August 21, 2026. This came
+after renewed negotiations in Switzerland. The waiver is seen as a
+confidence-building measure as US-Iran nuclear talks move forward.
+Iran is cautiously welcoming but insists no final deal has been signed.
+
+### 4. Ukraine Strikes Russian Missile Electronics Plant
+Ukraine carried out a precision strike on a Russian facility involved
+in producing missile electronics. Meanwhile, Ukraine signaled its
+ceasefire terms may be open to some adjustment — the first such signal
+in months — raising cautious hopes for diplomatic progress.
+
+### 5. Czech Republic-NATO Row Deepens
+Czech Prime Minister Andrej Babis has barred President Petr Pavel from
+attending next month's NATO summit in Ankara — an extraordinary move
+given Pavel is a former senior NATO official. The dispute centers on
+Czech defense spending, which has missed NATO's 2% of GDP target.
+Pavel says he will take the matter to the Constitutional Court.
+
+### 6. China Sanctions 10 US Defense Companies
+China announced sanctions on 10 American military-related companies
+in response to a US move barring major Chinese tech firms from US
+defense contracts. The tit-for-tat escalation adds to growing tensions
+between the two superpowers on trade and defense technology.
+
+---
+
+## 🇺🇸 US News
+
+### 7. Supreme Court Weakens Voting Rights Act Enforcement
+The US Supreme Court left in place a lower court ruling that strikes
+down a key enforcement mechanism of the Voting Rights Act, limiting
+protections for minority voters. Civil rights groups condemned the
+decision, warning it could disenfranchise millions ahead of the
+2026 midterms.
+
+### 8. California Drivers Sue Over AI-Driven Gas Pricing
+Drivers in California have filed a lawsuit alleging that AI-powered
+pricing algorithms used by major gas station chains are being used
+to unfairly coordinate fuel prices — raising prices in a way that
+amounts to price-fixing. The case is seen as a landmark test of how
+antitrust law applies to AI systems.
+
+---
+
+## ⚽ Sports
+
+### 9. Messi Becomes World Cup's All-Time Top Scorer
+Lionel Messi scored twice against Austria to reach 18 World Cup goals,
+surpassing
