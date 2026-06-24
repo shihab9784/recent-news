@@ -244,3 +244,105 @@ antitrust law applies to AI systems.
 ### 9. Messi Becomes World Cup's All-Time Top Scorer
 Lionel Messi scored twice against Austria to reach 18 World Cup goals,
 surpassing
+
+
+# 🗞️ Daily News Digest — Day 5 (June 24, 2026)
+
+---
+
+## 🌍 World & Geopolitics — BIG STORY
+
+### 1. US-Iran 14-Point Peace Deal — What's In It?
+Trump and Iranian President Masoud Pezeshkian signed a Memorandum of
+Understanding (MOU) last week at the Palace of Versailles, kicking off
+a 60-day window for a final nuclear deal. Key terms of the agreement:
+
+- Iran reaffirms it will not procure or develop nuclear weapons
+- The Strait of Hormuz reopens to commercial shipping toll-free for 60 days
+- The US lifts its naval blockade of Iranian ports immediately
+- All US sanctions on Iranian oil exports are waived
+- Iran's frozen funds and assets will be released
+- A $300 billion reconstruction fund for Iran (from regional partners,
+  not US taxpayers, Trump insists) will be developed
+- A final deal must be reached within 60 days, extendable by consent
+
+Trump warned: "If it doesn't get done in 60 days, we go back to bombing."
+Israel has expressed serious opposition to the deal. Critics say many
+key issues — including the fate of Iran's enriched uranium stockpile and
+its ballistic missile program — remain unresolved.
+
+### 2. UN Nuclear Inspectors Want Access to Iran — Tehran Says Not Yet
+The UN's nuclear watchdog (IAEA) said its inspectors are ready to visit
+Iranian nuclear sites immediately. Iran responded that inspections can
+only begin after a final deal is reached — not during the 60-day interim
+phase. The disagreement is one of the first tests of the fragile MOU.
+
+---
+
+## 🇺🇸 US Politics
+
+### 3. Senate Passes Historic Iran War Powers Resolution — Trump Furious
+In a stunning 50-48 vote, the US Senate became the first chamber to pass
+a war powers resolution directing President Trump to end the Iran war or
+seek formal congressional authorization before any further military action.
+Four Republicans — Rand Paul, Susan Collins, Lisa Murkowski, and Bill
+Cassidy — broke with their party to vote alongside Democrats.
+
+The resolution is largely symbolic and does not carry full legal force,
+but it is the first time both the House and Senate have passed such a
+measure. Trump fired back on Truth Social, calling the four Republicans
+"LOSERS" and the vote "poorly timed and meaningless." A White House
+official dismissed the resolution, saying hostilities already ended
+with the April 7 ceasefire.
+
+### 4. Pentagon Seeks $80 Billion for Iran War Costs
+Defense Secretary Pete Hegseth went to Capitol Hill asking Congress for
+roughly $80 billion in emergency supplemental funding to cover the cost
+of Operation Epic Fury — the US-Israeli war against Iran. Experts
+estimate the total price tag of the war could exceed $100 billion.
+The request faces growing pushback from lawmakers across both parties,
+especially as many Americans are still struggling with high gas prices
+caused by the Strait of Hormuz shutdown.
+
+### 5. Congress Passes Major Housing Affordability Bill
+In a rare bipartisan win, Congress passed the largest housing affordability
+legislation in decades. The bill aims to bring down housing costs by
+significantly boosting the supply of homes across the country. It now
+heads to the president's desk for signature.
+
+### 6. Trump's Fast-Track Deportation Policy Revived
+A federal appeals court overruled a Biden-era judge and revived the Trump
+administration's nationwide expedited removal policy, allowing fast-track
+deportations of undocumented immigrants without standard immigration court
+hearings. Immigration advocates have condemned the ruling and are expected
+to appeal.
+
+---
+
+## 🌡️ Weather & Environment
+
+### 7. Record June Heatwave Hits Europe
+Italy declared a red heat alert in 16 cities including Rome, as a severe
+heatwave sweeps across Southern Europe. The UK is also bracing for the
+highest June temperatures ever recorded in its history. Climate scientists
+say these events are becoming more frequent and intense.
+
+---
+
+## ⚽ Sports — FIFA World Cup 2026
+
+### 8. England Held to 0-0 Draw by Ghana
+England failed to secure their knockout stage spot after being held
+goalless by Ghana in Group L. Nico O'Reilly hit the bar with a header
+and Harry Kane skied the rebound in the most agonizing moment of the
+match. England still sit top of the group but face a nervy final game.
+
+### 9. Scotland vs Brazil — Historic Clash Today
+Scotland face Brazil today with a historic chance to reach the knockout
+stages of a World Cup for the very first time. Meanwhile, Colombia
+advanced to the Round of 32 after a late winner against DR Congo.
+Cristiano Ronaldo finally scored at the tournament, ending his drought.
+
+---
+
+> 📅 *Sources: NBC News, CBS News, Al Jazeera, ABC News, PBS, CNN, AP, ESPN | Compiled: June 24, 2026*
