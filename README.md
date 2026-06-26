@@ -346,3 +346,50 @@ Cristiano Ronaldo finally scored at the tournament, ending his drought.
 ---
 
 > 📅 *Sources: NBC News, CBS News, Al Jazeera, ABC News, PBS, CNN, AP, ESPN | Compiled: June 24, 2026*
+
+
+# 🗞️ Daily News Digest — Day 6 (June 25, 2026)
+
+---
+
+## 🌍 Natural Disaster — MAJOR STORY
+
+### 1. Twin Earthquakes Devastate Venezuela — Death Toll Rising Past 235
+Two massive earthquakes struck Venezuela just 39 seconds apart on
+Wednesday evening, killing at least 235 people and injuring more than
+4,300. The death toll is expected to climb significantly — the US
+Geological Survey (USGS) warned the final count could reach into the
+thousands, possibly even exceeding 10,000.
+
+The first quake measured 7.2 magnitude, followed almost immediately by
+a 7.5 — the largest earthquake to hit Venezuela since 1900. The
+epicenters were about 100 miles west of the capital Caracas, near
+the town of Morón on Venezuela's Caribbean coast.
+
+The coastal city of La Guaira was hit hardest, with over 100 buildings
+collapsed. Simón Bolívar International Airport sustained structural
+damage, flights were suspended, trains halted and schools closed.
+At least 157 people remain missing and nearly 3,000 families are
+displaced. A state of emergency has been declared.
+
+Venezuela was already in deep economic and political crisis before
+the disaster — more than 20 million of its 31.7 million people were
+living in poverty. USGS estimates damage could equal 1–7% of
+Venezuela's entire GDP ($111 billion).
+
+International response: The US is deploying elite urban search and
+rescue teams from Fairfax County, VA and Los Angeles County. Mexico,
+Argentina, Brazil, China and Switzerland have all pledged aid. The
+UN is fully mobilized. Pope Leo XIV sent an initial €100,000 emergency
+donation. The IMF is contributing to a $200M reconstruction fund.
+
+Trump wrote on Truth Social: "The U.S.A. stands ready, willing, and
+able to help!" and pledged immediate assistance.
+
+---
+
+## 🇺🇸 US Politics & Law
+
+### 2. Trump Cancels Housing Bill Signing at the Last Minute
+Trump refused to sign the bipartisan housing affordability bill — the
+largest housing bill in decades — that Congress had just passed. He
