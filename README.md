@@ -393,3 +393,75 @@ able to help!" and pledged immediate assistance.
 ### 2. Trump Cancels Housing Bill Signing at the Last Minute
 Trump refused to sign the bipartisan housing affordability bill — the
 largest housing bill in decades — that Congress had just passed. He
+
+# 🗞️ Daily News Digest — Day 7 (June 26–27, 2026)
+
+---
+
+## 🌍 Geopolitics — BIGGEST STORY
+
+### 1. US Strikes Iran Again — Ceasefire Under Severe Strain
+Iran's IRGC launched four one-way attack drones at commercial ships
+transiting the Strait of Hormuz on Thursday, striking a Singapore-flagged
+container ship called the "Ever Lovely" off the coast of Oman. Iran
+claimed ships must coordinate with Iranian authorities before passing
+through — even on the UN-backed alternative southern route hugging Oman.
+
+The US responded Friday with major retaliatory airstrikes. Six US Air
+Force F-35s and F-16s struck four Iranian military targets — missile and
+drone storage facilities and coastal radar systems at Sirik and on Qeshm
+Island. The operation lasted about 90 minutes.
+
+Trump called Iran's drone attack "a foolish violation" of the ceasefire
+MOU signed last week. VP JD Vance posted: "Iran signed a ceasefire
+agreement. We have honored it... But violence will be met with violence."
+
+Iran fired back: "The Strait of Hormuz is governed by Iran. Respect the
+rules. This is not a violation of the ceasefire; it is ceasefire
+management." Iran is now vowing a "swift and decisive" response.
+
+IMO IMPACT: The International Maritime Organization, which had been
+evacuating 600+ stranded ships through the strait via an Oman-hugging
+route, immediately halted all evacuations. About 115 ships had gotten
+out, but around 500 remain stranded. Two tankers reversed course mid-
+transit after the attack.
+
+STATUS: The US-Iran 60-day peace window is now under its most serious
+test. Diplomacy continues but the situation is on a knife's edge.
+
+### 2. Israel and Lebanon Sign Historic Framework Peace Agreement
+In a major diplomatic development, Secretary of State Marco Rubio joined
+Israel and Lebanon's ambassadors at the State Department in Washington
+to sign a framework agreement — described as a "major milestone" and
+"first step toward peace" after months of war.
+
+Key terms: Israel will begin partial withdrawal from southern Lebanon;
+IDF forces will pull out of two pilot zones inside its 6-mile buffer
+zone; Lebanese army forces will replace them; Hezbollah is declared
+an enemy of Lebanon; both countries commit to acting without hostility.
+
+COMPLICATION: Hezbollah — which was excluded from the talks — rejected
+the deal immediately, calling it "absurd, humiliating, and insulting."
+A Hezbollah official warned the agreement could trigger civil war in
+Lebanon. The group's armed status remains the core unresolved issue.
+
+### 3. Ukraine Launches Massive Overnight Drone Strike on Russia
+Ukraine launched one of its largest-ever drone offensives overnight,
+simultaneously targeting more than a dozen Russian regions, Russian-held
+Crimea, and ships in the surrounding Black Sea. Russia retaliated with
+strikes on multiple Ukrainian regions. The grinding war continues with
+no ceasefire in sight.
+
+---
+
+## 🇺🇸 US News
+
+### 4. John Bolton Pleads Guilty to Retaining Classified Information
+Former Trump National Security Adviser John Bolton, 77, pleaded guilty
+in federal court in Greenbelt, Maryland to one count of illegally retaining
+national defense information. While serving in the Trump White House
+in 2018–2019, Bolton included top-secret material — including US military
+plans, covert operations and intelligence on foreign leaders — in personal
+diary entries.
+
+Bolton agreed to pay a $2.25 million
