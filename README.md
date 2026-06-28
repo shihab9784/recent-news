@@ -465,3 +465,74 @@ plans, covert operations and intelligence on foreign leaders — in personal
 diary entries.
 
 Bolton agreed to pay a $2.25 million
+
+
+# 🗞️ Daily News Digest — Day 8 (June 28, 2026)
+
+---
+
+## 🌍 World & Geopolitics
+
+### 1. US-Iran Ceasefire Still Shaky After Ship Attack
+The US struck Iranian military sites Friday after Iran drone-attacked
+a cargo ship in the Strait of Hormuz. Iran insists it was "ceasefire
+management," not a violation. The IMO has paused evacuating 500+
+stranded ships until safety is guaranteed. The 60-day peace window
+is now under its biggest test yet.
+
+### 2. Venezuela Earthquake Death Toll Jumps to 589
+The official death toll from last week's twin 7.2 and 7.5 magnitude
+earthquakes has more than doubled to 589, with thousands still missing.
+US, Mexican, and other international rescue teams are searching rubble
+across Caracas and coastal La Guaira. US sanctions are reportedly
+slowing aid delivery to the country.
+
+### 3. Gaza Killings Top 1,000+ Since "Ceasefire"
+Israeli forces have killed over 1,000 Palestinians in Gaza since the
+October ceasefire was declared — and now occupy 64% of the Strip. A
+12-year-old was among those recently killed in a drone strike on a
+displacement camp. The UN has condemned the ongoing violations.
+
+### 4. Israel Refuses Lebanon Withdrawal Despite Deal
+Despite signing a framework peace deal with Lebanon on June 26,
+Israeli Defense Minister Katz declared Israel will not withdraw from
+southern Lebanon. Hezbollah rejected the deal entirely, calling it
+"humiliating." Iran warned Israel's refusal violates the US-Iran MOU.
+
+---
+
+## 🇺🇸 US News
+
+### 5. Steve Clarke Resigns as Scotland Manager
+After Scotland's World Cup exit at the group stage, national team
+manager Steve Clarke announced his resignation. Scotland came agonizingly
+close to a historic Round of 32 qualification but were eliminated on
+goal difference. Clarke had led Scotland to their first-ever World Cup
+since 1998.
+
+### 6. DSA Candidates Sweep New York Democratic Primaries
+Democratic Socialists of America-backed progressive candidates swept
+several key New York primary elections this week, defeating long-serving
+establishment Democrats. The wins signal a major leftward shift in
+New York's Democratic politics ahead of the 2026 midterms.
+
+---
+
+## ⚽ Sports — FIFA World Cup 2026
+
+### 7. Knockout Stage Begins — Round of 32 Underway
+The group stage is over — 32 teams advance, 16 go home. Notable:
+Iran was dramatically eliminated in the final seconds when Austria
+equalized against Algeria. England topped Group L with a 2-0 win
+over Panama (Bellingham & Kane scored). South Africa face Canada
+today in the first knockout match.
+
+### 8. Messi Scores 6th Goal of Tournament
+Lionel Messi added his 6th goal of the 2026 World Cup, continuing
+his record-breaking run. Argentina and Portugal both advanced.
+Colombia's last-16 place was confirmed despite a controversial
+offside call ruling out a late winner against Portugal.
+
+---
+
+> 📅 *Sources: NPR, AP, ESPN, Times of Israel, Democracy Now!, Al Jazeera | Compiled: June 28, 2026*
