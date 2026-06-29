@@ -536,3 +536,31 @@ offside call ruling out a late winner against Portugal.
 ---
 
 > 📅 *Sources: NPR, AP, ESPN, Times of Israel, Democracy Now!, Al Jazeera | Compiled: June 28, 2026*
+
+
+# ⚽🎾 Sports News — Day 11 (July 1, 2026)
+
+### 1. FIFA World Cup — Today's Matches (Round of 32)
+England vs DR Congo (Atlanta), Belgium vs Senegal (Seattle), and USMNT vs Bosnia & Herzegovina (San Francisco) are today's big knockout games.
+
+### 2. Brazil & Germany Advance — Round of 32 Results
+Brazil beat Japan and Germany beat Paraguay in Monday's Round of 32 matches. Netherlands vs Morocco also played — winners advance to Round of 16.
+
+### 3. USA Last-Second Goal Drama
+A last-second goal ended the USA's smooth World Cup run — USMNT squeezed through but the "honeymoon is over" as the real knockout pressure begins.
+
+### 4. Wimbledon 2026 Underway
+Wimbledon is in full swing with defending champions Jannik Sinner and Iga Świątek as top seeds. Viktor Hovland won the Travelers Championship in a Monday playoff after Scottie Scheffler missed a short birdie putt.
+
+### 5. NBA Draft — AJ Dybantsa Goes #1
+AJ Dybantsa was selected as the #1 pick in the 2026 NBA Draft — a big night dominated by freshman stars. Michigan's champions were also heavily featured.
+
+### 6. NBA Offseason Rumors Heating Up
+Seven teams are reportedly eyeing Jaylen Brown. Kawhi Leonard linked to Toronto for Brandon Ingram. Thunder re-signing Isaiah Hartenstein for 3 years/$75M. Celtics re-signing Ron Harper Jr.
+
+### 7. MLB — Schwarber Hits 30th Homer
+Kyle Schwarber set a Phillies franchise record with his MLB-best 30th home run of the season in a 5-4 win over the Mets.
+
+---
+
+> 📅 *Sources: ESPN, NBC Sports, Yahoo Sports, CNN Sport | Compiled: July 1, 2026*
