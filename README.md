@@ -564,3 +564,27 @@ Kyle Schwarber set a Phillies franchise record with his MLB-best 30th home run o
 ---
 
 > 📅 *Sources: ESPN, NBC Sports, Yahoo Sports, CNN Sport | Compiled: July 1, 2026*
+
+# ⚽🎾 Sports News — Day 12 (July 2, 2026)
+
+### 1. Germany Shockingly Eliminated by Paraguay
+Four-time champions Germany were knocked out on penalties (4-3) by Paraguay after a 1-1 draw. Klinsmann called it "an embarrassment" for German football.
+
+### 2. Morocco Stun Netherlands on Penalties
+Morocco beat Netherlands 3-2 on penalties after a thrilling 1-1 draw in extra time, advancing to the Round of 16.
+
+### 3. Brazil Edge Past Japan
+Brazil rallied for a dramatic 2-1 win over Japan in the Round of 32, keeping their World Cup dream alive.
+
+### 4. Today's Matches — Spain, Portugal, Switzerland in Action
+Spain vs Austria, Portugal vs Croatia, and Switzerland vs Algeria headline today's Round of 32 fixtures.
+
+### 5. England Beat Panama 2-0 — Bellingham & Kane Shine
+Jude Bellingham scored and assisted as England beat Panama 2-0 to top Group L, setting up a clash with DR Congo next.
+
+### 6. Mbappé Becomes France's Record Goalscorer
+Kylian Mbappé's brace against Senegal made him France's all-time top scorer, as Les Bleus remain among the tournament favorites.
+
+---
+
+> 📅 *Sources: ESPN, Yahoo Sports, CBS Sports, FourFourTwo, Fox Sports | Compiled: July 2, 2026*
