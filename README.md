@@ -588,3 +588,20 @@ Kylian Mbappé's brace against Senegal made him France's all-time top scorer, as
 ---
 
 > 📅 *Sources: ESPN, Yahoo Sports, CBS Sports, FourFourTwo, Fox Sports | Compiled: July 2, 2026*
+
+# ⚽🎾 Sports News — Day 13 (July 3, 2026)
+
+## ⚽ FIFA World Cup — Today's Matches
+Argentina vs Cape Verde (Miami), Australia vs Egypt (Dallas), and
+Colombia vs Ghana (Kansas City) are today's Round of 32 fixtures.
+
+## ⚽ Recent World Cup Results
+Norway beat Ivory Coast 2-1, Mexico beat Ecuador 2-0 to advance to Round
+of 16. England face DR Congo, USMNT face Bosnia — both play today.
+
+## 🎾 Wimbledon — Serena Williams Eliminated
+Serena Williams' dramatic comeback ended in the first round — she lost
+to 20-year-old American-Australian Maya Joint 6-3, 6-7, 6-3 after
+nearly four years away from singles tennis.
+
+## 🎾 Wimbledon — Shelton Shocked, Sinner & Djokovic
