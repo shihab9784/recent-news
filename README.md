@@ -605,3 +605,18 @@ to 20-year-old American-Australian Maya Joint 6-3, 6-7, 6-3 after
 nearly four years away from singles tennis.
 
 ## 🎾 Wimbledon — Shelton Shocked, Sinner & Djokovic
+
+# ⚽🎾 Sports News — Day 14 (July 4–5, 2026)
+
+## ⚽ World Cup Round of 32 — Final Results
+Egypt beat Australia 4-2 on penalties (1-1 AET), Argentina beat Cape
+Verde 3-2, Colombia beat Ghana 1-0. All 32 teams now decided — Round
+of 16 is set!
+
+## ⚽ Morocco Knock Out Canada 3-0
+Canada's historic World Cup run ended abruptly — Morocco dominated 3-0
+in the Round of 16. Canada were the first co-host to reach the knockouts
+but couldn't go further.
+
+## ⚽ Today's Round of 16 Matches
+France vs Paraguay (Philadelphia) is today's big
