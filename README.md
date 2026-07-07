@@ -620,3 +620,22 @@ but couldn't go further.
 
 ## ⚽ Today's Round of 16 Matches
 France vs Paraguay (Philadelphia) is today's big
+
+# ⚽🎾 Sports News — Day 15 (July 6–7, 2026)
+
+## ⚽ USMNT Eliminated — Belgium Win 4-1
+Belgium demolished the USA 4-1 in the Round of 16 in Seattle. Pulisic
+went off injured in the 59th minute visibly distraught. Belgium face
+Spain in the quarterfinals.
+
+## ⚽ Spain Beat Portugal in Iberian Derby
+Spain knocked out Portugal in a thrilling Round of 16 clash, setting up
+a quarterfinal against Belgium.
+
+## ⚽ Today's Round of 16 — Argentina & Switzerland in Action
+Argentina vs Egypt (Atlanta) and Switzerland vs Colombia (Vancouver)
+are today's two World Cup knockout games.
+
+## ⚽ Quarterfinals Taking Shape
+France, Spain, Belgium, Morocco, England, Brazil, Argentina, and
+Colombia/Switzerland are among the favorites. Two host
