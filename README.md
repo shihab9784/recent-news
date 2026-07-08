@@ -639,3 +639,11 @@ are today's two World Cup knockout games.
 ## ⚽ Quarterfinals Taking Shape
 France, Spain, Belgium, Morocco, England, Brazil, Argentina, and
 Colombia/Switzerland are among the favorites. Two host
+
+# ⚽🎾 Sports News — Day 16 (July 8, 2026)
+
+## ⚽ World Cup Rest Day — No Matches Today
+আজ July 8 তে কোনো World Cup ম্যাচ নেই — 27 দিন টানা খেলার পর প্রথম বিরতি।  Quarterfinals শুরু হচ্ছে কাল থেকে।
+
+## ⚽ Argentina Beat Egypt 3-2 — Messi Cried After Match
+Argentina নাটকীয়ভাবে Egypt কে 3-2
