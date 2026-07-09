@@ -647,3 +647,7 @@ Colombia/Switzerland are among the favorites. Two host
 
 ## ⚽ Argentina Beat Egypt 3-2 — Messi Cried After Match
 Argentina নাটকীয়ভাবে Egypt কে 3-2
+# ⚽🎾 Sports News — Day 17 (July 9, 2026)
+
+## ⚽ World Cup Quarterfinal — France vs Morocco (TODAY)
+আজকের একমাত্র ম্যাচ — France vs Morocco, Gillette Stadium, Boston এ। France পুরো tournament এ 5 ম্যাচে জিতেছে; Morocco 34 ম্যাচ unbeaten। 2022 তে এই দুই দল semifinal এ খেলেছিল।
