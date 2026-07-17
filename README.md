@@ -22,3 +22,12 @@ Argentina টানা 6ষ্ঠবার World Cup semifinal এ।
 Spain vs France ছিল Jul 14 তে — Spain 2-0 তে জিতে final এ।
 
 ## ⚽
+# ⚽ Sports News — Day 20 (July 13–15, 2026)
+
+## ⚽ Spain Beat France 2-0 — World Cup Final এ!
+Spain dominant performance এ France কে 2-0 গোলে হারিয়ে final এ উঠেছে।
+Lamine Yamal ও Mikel Merino ছিলেন নায়ক — Mbappé একদম নিষ্প্রভ।
+
+## ⚽ Argentina Beat England 2-1 — Messi এর শেষ World Cup Final!
+Argentina দুটি late goal করে England কে 2-1 এ হারিয়ে final এ।
+এটি Messi এর সম্ভবত শেষ World Cup — Spain এর বিপক্ষে চূড়ান্ত লড়াই।
