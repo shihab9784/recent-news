@@ -31,3 +31,11 @@ Lamine Yamal ও Mikel Merino ছিলেন নায়ক — Mbappé এক
 ## ⚽ Argentina Beat England 2-1 — Messi এর শেষ World Cup Final!
 Argentina দুটি late goal করে England কে 2-1 এ হারিয়ে final এ।
 এটি Messi এর সম্ভবত শেষ World Cup — Spain এর বিপক্ষে চূড়ান্ত লড়াই।
+# ⚽🏆 Sports News — Day 21 (July 19–21, 2026)
+
+## 🏆 SPAIN WORLD CUP CHAMPION 2026!
+Spain Argentina কে extra time এ 1-0 হারিয়ে 2026 World Cup জিতেছে।
+Ferran Torres 106th মিনিটে decisive goal করেন — Spain এর দ্বিতীয় World Cup title।
+
+## ⚽ Final Stats — One-Sided Masterclass
+Spain 20টি shot
