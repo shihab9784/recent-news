@@ -15,11 +15,9 @@ Haaland ছিলেন anonymous — Bellingham রাতের নায়ক
 
 ## ⚽ Argentina Beat Switzerland 3-1 (AET) — Semifinal এ!
 Julián Álvarez 112th মিনিটে golazo করেন, Lautaro Martínez শেষ মুহূর্তে গোল করেন।
-Argentina টানা 6ষ্ঠবার World Cup semifinal এ।
-
-## ⚽ World Cup Semifinal — Argentina vs England (Jul 15, Atlanta)
-ইতিহাসের সবচেয়ে আলোচিত rivalry এখন semifinal এ মুখোমুখি।
-Spain vs France ছিল Jul 14 তে — Spain 2-0 তে জিতে final এ।
+## 🎉 Halftime Show — Madonna, Shakira, BTS!
+World Cup final এর halftime show তে Madonna, Justin Bieber, Shakira ও BTS পারফর্ম করেছেন।
+Trump trophy প্রদান করেছেন — Tom Cruise এর বক্তৃতা বিরক্তিকর হিসেবে আলোচনায় এসেছে
 
 ## ⚽
 # ⚽ Sports News — Day 20 (July 13–15, 2026)
