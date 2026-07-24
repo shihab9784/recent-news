@@ -4,7 +4,7 @@ ton এ। France পুরো tournament এ 5 ম্যাচে জিতে�
 
 ## ⚽ France Beat Morocco 2-0 — Semifinal এ
 France গতকাল Morocco কে 2-0 তে হারিয়ে সেমিফাইনালে উঠেছে।
-France এখন পর্যন্ত 6 ম্যাচে অপরাজিত — tournament এর সেরা দল।
+France এখন পর্যন্ত 6 ম্যাচে অপরাজিত — tournament এর সেরা দল। no
 
 ## ⚽ আজকের Quarterfinal — Belgium vs
 # ⚽🎾 Sports News — Day 19 (July 11–12, 2026)
