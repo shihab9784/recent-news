@@ -1,11 +1,22 @@
-ton এ। France পুরো tournament এ 5 ম্যাচে জিতেছে; Morocco 34 ম্যাচ unbeaten। 2022 তে এই দুই দল semifinal এ খেলেছিল।
+# 🏀🥊🚴 Sports News — Day 22 (July 21–22, 2026)
 
-# ⚽🎾 Sports News — Day 18 (July 10, 2026)
+## 🥊 UFC 329 — McGregor vs Holloway 2 (July 11 recap)
+Max Holloway McGregor কে হারিয়ে three-division history গড়েছেন।
+UFC 329 ইতিহাসের সবচেয়ে বড় gate — $26.4 million টিকেট বিক্রি।
 
-## ⚽ France Beat Morocco 2-0 — Semifinal এ
-France গতকাল Morocco কে 2-0 তে হারিয়ে সেমিফাইনালে উঠেছে।
-France এখন পর্যন্ত 6 ম্যাচে অপরাজিত — tournament এর সেরা দল। no
+## 🏀 WNBA All-Star Weekend আসছে — Chicago (July 24–25)
+Caitlin Clark, Paige Bueckers, A'ja Wilson, Angel Reese সবাই খেলবেন।
+WNBA এর 30th anniversary season — United Center এ July 25 তে All-Star Game।
 
+## 🏀 WNBA All-Star Skills Night (July 24)
+Azzi Fudd 3-Point Contest জিতেছেন — WNBA ইতিহাসে প্রথম rookie winner।
+Team Washington Shooting Stars Competition এ 31 পয়েন্ট করে জিতেছে।
+
+## 🚴 Tour de France চলছে
+Tour de France এখনও চলছে — শেষ হবে শীঘ্রই।
+এই সপ্তাহে Tour de France Femmes ও শুরু হচ্ছে July 25 তে।
+
+## ⚽ Summer Transfer Window
 ## ⚽ আজকের Quarterfinal — Belgium vs
 # ⚽🎾 Sports News — Day 19 (July 11–12, 2026)
 
