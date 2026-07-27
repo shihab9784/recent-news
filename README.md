@@ -1,33 +1,18 @@
-# 🏀🥊🚴 Sports News — Day 22 (July 21–22, 2026)
+# 🥊🏀🏋️ Sports News — Day 23 (July 25–27, 2026)
 
-## 🥊 UFC 329 — McGregor vs Holloway 2 (July 11 recap)
-Max Holloway McGregor কে হারিয়ে three-division history গড়েছেন।
-UFC 329 ইতিহাসের সবচেয়ে বড় gate — $26.4 million টিকেট বিক্রি।
+## 🥊 Joshua KOs Prenga in Round 2 — Fury Fight Next!
+Joshua দুইবার মাটিতে পড়েও দ্বিতীয় রাউন্ডেই Prenga কে KO করলেন।
+এই জয়ের পর Joshua vs Tyson Fury সুপার ফাইট November এ নিশ্চিত।
 
-## 🏀 WNBA All-Star Weekend আসছে — Chicago (July 24–25)
-Caitlin Clark, Paige Bueckers, A'ja Wilson, Angel Reese সবাই খেলবেন।
-WNBA এর 30th anniversary season — United Center এ July 25 তে All-Star Game।
+## 🥊 Fury ও জিতলেন — একই সপ্তাহে
+Tyson Fury থাইল্যান্ডে Mariusz Wach কে 7th round এ থামিয়ে দিলেন।
+Fury vs Joshua — Heavyweight superfight এর পথ পরিষ্কার।
 
-## 🏀 WNBA All-Star Skills Night (July 24)
-Azzi Fudd 3-Point Contest জিতেছেন — WNBA ইতিহাসে প্রথম rookie winner।
-Team Washington Shooting Stars Competition এ 31 পয়েন্ট করে জিতেছে।
+## 🏀 WNBA All-Star Game — Team Spoon জিতলো 129-122
+Team Spoon (Napheesa Collier) Team Coop (Kahleah Copper) কে 129-122 এ হারিয়েছে।
+Jonquel Jones All-Star MVP — Regular Season MVP, Finals MVP, এবং All-Star MVP একই বছরে।
 
-## 🚴 Tour de France চলছে
-Tour de France এখনও চলছে — শেষ হবে শীঘ্রই।
-এই সপ্তাহে Tour de France Femmes ও শুরু হচ্ছে July 25 তে।
-
-## ⚽ Summer Transfer Window
-## ⚽ আজকের Quarterfinal — Belgium vs
-# ⚽🎾 Sports News — Day 19 (July 11–12, 2026)
-
-## ⚽ England Beat Norway 2-1 (AET) — Semifinal এ!
-Jude Bellingham দুটি গোল করে England কে extra time এ Norway এর বিপক্ষে 2-1 জয় এনে দিলেন।
-Haaland ছিলেন anonymous — Bellingham রাতের নায়ক।
-
-## ⚽ Argentina Beat Switzerland 3-1 (AET) — Semifinal এ!
-Julián Álvarez 112th মিনিটে golazo করেন, Lautaro Martínez শেষ মুহূর্তে গোল করেন।
-## 🎉 Halftime Show — Madonna, Shakira, BTS!
-World Cup final এর halftime show তে Madonna, Justin Bieber, Shakira ও BTS পারফর্ম করেছেন।
+## 🏋️
 Trump trophy প্রদান করেছেন — Tom Cruise এর বক্তৃতা বিরক্তিকর হিসেবে আলোচনায় এসেছে
 
 ## ⚽
