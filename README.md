@@ -1,30 +1,26 @@
-# 🥊🏀🏋️ Sports News — Day 23 (July 25–27, 2026)
+# 🚴🏋️⚾ Sports News — Day 24 (July 29, 2026)
 
-## 🥊 Joshua KOs Prenga in Round 2 — Fury Fight Next!
-Joshua দুইবার মাটিতে পড়েও দ্বিতীয় রাউন্ডেই Prenga কে KO করলেন।
-এই জয়ের পর Joshua vs Tyson Fury সুপার ফাইট November এ নিশ্চিত।
+## 🚴 Pogačar তৃতীয়বারের মতো Tour de France জিতলেন!
+Tadej Pogačar 2026 Tour de France জিতে পরপর তৃতীয়বার এবং মোট পঞ্চমবার Yellow Jersey পরলেন। 
+Final Stage 21 তে Paris এ Mathieu van der Poel দুর্দান্ত sprint জিতলেন। 
 
-## 🥊 Fury ও জিতলেন — একই সপ্তাহে
-Tyson Fury থাইল্যান্ডে Mariusz Wach কে 7th round এ থামিয়ে দিলেন।
-Fury vs Joshua — Heavyweight superfight এর পথ পরিষ্কার।
+## 🚴 Tour de France Final Podium
+১ম: Pogačar, ২য়: Remco Evenepoel (+6:26), ৩য়: Isaac del Toro (+9:42)। 
+Jonas Vingegaard crash এর পর race ছেড়ে দিতে বাধ্য হন।
 
-## 🏀 WNBA All-Star Game — Team Spoon জিতলো 129-122
-Team Spoon (Napheesa Collier) Team Coop (Kahleah Copper) কে 129-122 এ হারিয়েছে।
-Jonquel Jones All-Star MVP — Regular Season MVP, Finals MVP, এবং All-Star MVP একই বছরে।
+## 🏋️ Commonwealth Games 2026 — Glasgow চলছে
+Commonwealth Games Glasgow এ July 23 থেকে August 2 পর্যন্ত চলছে। 
+Athletics শুরু হয়েছে — weightlifting, swimming এ medals আসছে।
 
-## 🏋️
-Trump trophy প্রদান করেছেন — Tom Cruise এর বক্তৃতা বিরক্তিকর হিসেবে আলোচনায় এসেছে
+## ⚾ MLB — Cleveland vs Cincinnati ডাবলহেডার
+Cleveland Guardians vs Cincinnati Reds ডাবলহেডারে Cleveland প্রথম ম্যাচ 6-5 জিতলো, Cincinnati দ্বিতীয় ম্যাচ 2-0 জিতলো। 
 
-## ⚽
-# ⚽ Sports News — Day 20 (July 13–15, 2026)
+## ⚽ Sydney Super Cup শুরু
+Chelsea, Tottenham, Sydney FC ও Western Sydney Wanderers নিয়ে Sydney Super Cup July 28 থেকে August 12 চলবে। 
 
-## ⚽ Spain Beat France 2-0 — World Cup Final এ!
-Spain dominant performance এ France কে 2-0 গোলে হারিয়ে final এ উঠেছে।
-Lamine Yamal ও Mikel Merino ছিলেন নায়ক — Mbappé একদম নিষ্প্রভ।
+---
 
-## ⚽ Argentina Beat England 2-1 — Messi এর শেষ World Cup Final!
-Argentina দুটি late goal করে England কে 2-1 এ হারিয়ে final এ।
-এটি Messi এর সম্ভবত শেষ World Cup — Spain এর বিপক্ষে চূড়ান্ত লড়াই।
+> 📅 *Sources: Wikipedia, Olympics.com, CyclingNews, ESPN, WRBI Radio | Compiled: July 29, 2026*
 # ⚽🏆 Sports News — Day 21 (July 19–21, 2026)
 
 ## 🏆 SPAIN WORLD CUP CHAMPION 2026!
